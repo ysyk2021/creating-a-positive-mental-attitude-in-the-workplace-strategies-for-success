@@ -1,5 +1,3 @@
-Chapter 1: Introduction to a Positive Mental Attitude in the Workplace
-======================================================================
 
 In this chapter, we will introduce the concept of a positive mental attitude and its importance in the workplace. We will discuss historical perspectives on mindset theory and practice, as well as the challenges and opportunities of cultivating a positive mental attitude at work.
 

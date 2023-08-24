@@ -1,5 +1,3 @@
-Selecting and Implementing Tools that are Best Suited to Your Positivity and Well-being Goals
-======================================================================================================================================================================
 
 In this chapter, we will explore strategies for leveraging technology and tools to promote a positive mental attitude in the workplace. We will discuss the importance of selecting tools that align with individual and organizational positivity and well-being goals, and provide practical recommendations for implementation.
 

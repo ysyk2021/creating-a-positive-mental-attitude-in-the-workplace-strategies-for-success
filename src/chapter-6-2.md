@@ -1,5 +1,3 @@
-Building Resilience and Coping Skills
-==========================================================================================
 
 In this chapter, we will explore strategies for managing stress and overcoming adversity by building resilience and coping skills. We will discuss the importance of recognizing and addressing sources of stress and adversity, developing effective coping strategies, and promoting self-care.
 

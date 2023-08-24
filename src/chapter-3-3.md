@@ -1,5 +1,3 @@
-Building Self-Awareness and Emotional Intelligence
-======================================================================================================================
 
 In this chapter, we will explore strategies for cultivating a positive mental attitude in the workplace through building self-awareness and emotional intelligence. We will discuss practical approaches to identifying and managing emotions, and developing empathy for others.
 

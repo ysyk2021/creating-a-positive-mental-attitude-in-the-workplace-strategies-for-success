@@ -1,5 +1,3 @@
-Recognizing the Different Factors that Impact Positivity and Well-being in the Workplace
-===============================================================================================================================================
 
 In this chapter, we will discuss different factors that impact positivity and well-being in the workplace. We will explore how recognizing these factors can help individuals and organizations promote a positive work environment.
 

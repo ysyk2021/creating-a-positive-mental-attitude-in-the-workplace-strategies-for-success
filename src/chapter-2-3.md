@@ -1,5 +1,3 @@
-Understanding the Role of Mindset and Emotional Regulation in Promoting Positivity
-=========================================================================================================================================
 
 In this chapter, we will discuss the psychology of positivity in the workplace. We will explore the role of mindset and emotional regulation in promoting positivity and creating a positive work environment.
 

@@ -1,5 +1,3 @@
-Developing Strategies for Promoting Growth Mindset and Resilience in the Workplace
-======================================================================================================================================
 
 In this chapter, we will discuss strategies for promoting growth mindset and resilience in the workplace. We will explore practical approaches to developing a growth mindset and fostering an environment of resilience and adaptability.
 

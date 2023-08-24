@@ -1,5 +1,3 @@
-Historical Perspectives on Mindset Theory and Practice
-==============================================================================================================================
 
 In this chapter, we will explore the historical perspectives on mindset theory and practice and how they relate to cultivating a positive mental attitude in the workplace.
 

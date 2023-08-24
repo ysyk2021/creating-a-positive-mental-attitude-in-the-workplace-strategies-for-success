@@ -1,5 +1,3 @@
-Practicing Gratitude, Mindfulness, and Other Positivity Techniques
-======================================================================================================================================
 
 In this chapter, we will discuss techniques for cultivating a positive mental attitude in the workplace. We will explore how practicing gratitude, mindfulness, and other positivity techniques can improve personal and organizational success.
 

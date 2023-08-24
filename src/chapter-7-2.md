@@ -1,5 +1,3 @@
-Leading with Authenticity, Transparency, and Empathy
-===========================================================================================================================
 
 In this chapter, we will discuss how to apply positive mental attitude principles to leadership in the workplace. We will explore how leading with authenticity, transparency, and empathy can create a positive work environment that promotes success.
 

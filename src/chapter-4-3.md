@@ -1,5 +1,3 @@
-Encouraging Open Communication and Constructive Feedback
-=========================================================================================================
 
 In this chapter, we will explore strategies for creating a positive work environment by encouraging open communication and constructive feedback. We will discuss the importance of promoting communication, providing feedback, and fostering an environment of respect and trust.
 

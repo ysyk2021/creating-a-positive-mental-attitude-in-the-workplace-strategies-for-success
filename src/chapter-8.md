@@ -1,5 +1,3 @@
-Chapter 8: Leveraging Technology and Tools for Positive Mental Attitude
-=======================================================================
 
 In this chapter, we will explore the different technologies and tools available for promoting positivity in the workplace. We will discuss selecting and implementing tools that are best suited to your positivity and well-being goals, and using technology and data to track and enhance positivity in the workplace.
 

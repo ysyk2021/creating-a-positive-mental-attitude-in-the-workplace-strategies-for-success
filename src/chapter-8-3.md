@@ -1,5 +1,3 @@
-Using Technology and Data to Track and Enhance Positivity in the Workplace
-===================================================================================================================================================
 
 In this chapter, we will explore how technology and data can be used to track and enhance positivity in the workplace. We will discuss the benefits and challenges of using technology for this purpose, and provide practical recommendations for implementation.
 

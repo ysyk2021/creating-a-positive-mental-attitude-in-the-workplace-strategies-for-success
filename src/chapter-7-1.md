@@ -1,5 +1,3 @@
-Developing Effective Leadership Skills through Positive Mental Attitude Principles
-=========================================================================================================================================================
 
 In this chapter, we will discuss how to apply positive mental attitude principles to leadership in the workplace. We will explore how developing effective leadership skills through positive mental attitude principles can create a positive work environment that promotes success.
 

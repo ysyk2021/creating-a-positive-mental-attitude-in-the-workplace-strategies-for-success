@@ -1,5 +1,3 @@
-Identifying Common Barriers to Positivity
-================================================================================================
 
 In this chapter, we will discuss common barriers to positivity in the workplace. We will explore how identifying these barriers can help individuals and organizations overcome them and cultivate a more positive work environment.
 

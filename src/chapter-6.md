@@ -1,5 +1,3 @@
-Chapter 6: Managing Stress and Overcoming Adversity
-===================================================
 
 In this chapter, we will explore strategies for managing stress and overcoming adversity in the workplace. We will discuss the importance of building resilience and coping skills, as well as seeking support and resources when needed.
 

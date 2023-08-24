@@ -1,5 +1,3 @@
-Encouraging Risk-Taking and Innovation
-==========================================================================================
 
 A growth mindset is the belief that one's abilities can be developed through dedication, hard work, and perseverance. In contrast, a fixed mindset is the belief that one's abilities are limited and cannot be improved upon. Developing a growth mindset in the workplace is essential for promoting innovation and risk-taking.
 

@@ -1,5 +1,3 @@
-Chapter 7: Applying Positive Mental Attitude Principles to Leadership
-=====================================================================
 
 In this chapter, we will explore how positive mental attitude principles can be applied to leadership. We will discuss developing effective leadership skills through positive mental attitude principles, leading with authenticity, transparency, and empathy, and using positive reinforcement and recognition to motivate and inspire.
 

@@ -1,5 +1,3 @@
-Seeking Support and Resources When Needed
-==============================================================================================
 
 In this chapter, we will discuss the importance of seeking support and resources when managing stress and overcoming adversity in the workplace. We will explore practical approaches to identifying sources of support and accessing resources that can help individuals navigate challenging situations.
 

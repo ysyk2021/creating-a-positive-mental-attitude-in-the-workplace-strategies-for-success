@@ -1,5 +1,3 @@
-Defining a Positive Mental Attitude and Its Importance in the Workplace
-=============================================================================
 
 In this chapter, we will introduce the concept of a positive mental attitude in the workplace. We will define what a positive mental attitude is and explore its importance in the workplace.
 

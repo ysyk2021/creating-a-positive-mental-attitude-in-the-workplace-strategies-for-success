@@ -1,5 +1,3 @@
-Chapter 5: Promoting Growth Mindset and Resilience
-==================================================
 
 In this chapter, we will explore strategies for promoting growth mindset and resilience in the workplace. We will discuss the importance of emphasizing learning and development opportunities, as well as encouraging risk-taking and innovation.
 

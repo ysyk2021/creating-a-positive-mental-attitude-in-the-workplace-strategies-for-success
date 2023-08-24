@@ -1,5 +1,3 @@
-Chapter 3: Cultivating a Positive Mental Attitude in the Workplace
-==================================================================
 
 In this chapter, we will explore strategies for cultivating a positive mental attitude and well-being in the workplace. We will discuss the importance of practicing gratitude, mindfulness, and other positivity techniques, as well as building self-awareness and emotional intelligence.
 

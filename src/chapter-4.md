@@ -1,5 +1,3 @@
-Chapter 4: Creating a Positive Work Environment
-===============================================
 
 In this chapter, we will explore strategies for creating a positive work environment. We will discuss the importance of fostering a sense of community and connection among team members, as well as encouraging open communication and constructive feedback.
 

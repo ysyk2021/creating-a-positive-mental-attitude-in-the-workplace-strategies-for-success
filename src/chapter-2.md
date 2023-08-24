@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Positivity
-=====================================================
 
 In this chapter, we will explore the psychology of positivity in the workplace. We will discuss recognizing the different factors that impact positivity and well-being, identifying common barriers to positivity, and understanding the role of mindset and emotional regulation in promoting positivity.
 

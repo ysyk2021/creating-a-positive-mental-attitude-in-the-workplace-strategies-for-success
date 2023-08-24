@@ -1,5 +1,3 @@
-Understanding the Different Technologies and Tools Available for Promoting Positivity in the Workplace
-===============================================================================================================================================================================
 
 In this chapter, we will discuss the different technologies and tools available for promoting positivity in the workplace. We will explore the benefits and limitations of each tool, and provide practical recommendations for selecting and implementing them.
 

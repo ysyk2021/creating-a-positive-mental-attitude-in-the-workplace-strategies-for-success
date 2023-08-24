@@ -1,5 +1,3 @@
-Using Positive Reinforcement and Recognition to Motivate and Inspire
-===========================================================================================================================================
 
 Positive mental attitude principles are not only beneficial for individual employees but also for leaders in the workplace. Leaders who apply positive mental attitude principles to their leadership style can motivate and inspire their employees to achieve their goals and reach their full potential.
 
